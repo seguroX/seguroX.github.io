@@ -1,1 +1,0 @@
-# seguroX.github.io
